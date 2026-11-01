@@ -1,0 +1,2 @@
+# Trader-Nakal
+trader nakal
